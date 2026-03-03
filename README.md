@@ -1,3 +1,14 @@
+THE PASSWORD IS ERODE
+     
+     
+     
+     
+     
+     
+     
+     
+     
+     
      Why should i turn off Anti-Virus for some options:
 
      when excecuting an option sometimes windows detects it
